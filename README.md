@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @codingboythatlikespython
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing sadly i am only ten
+- 📫 How to reach me  email me at jacksonlsleeman@gmail.com
